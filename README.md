@@ -1,6 +1,6 @@
 Visit - https://freyxfi.github.io/
 
-I am 24 y/o NetRunner and MMA Player 
+I am 24 y/o NetRunner and MMA 
 
 2026 = Hacking Everything! 
 
